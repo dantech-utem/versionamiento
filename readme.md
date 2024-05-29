@@ -8,3 +8,5 @@ notecreo wuas wuas
 Regresen las compus
 
 quiero pan
+
+Te amo rober, besame en la boca, enbarazame, pegame y abandoname
